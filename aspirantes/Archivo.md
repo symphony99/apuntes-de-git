@@ -3,3 +3,5 @@
 Opera Magna
 
 Stratovarius
+
+Megadeth
